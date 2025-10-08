@@ -25,7 +25,7 @@
 
 ## 🤔  Y N T K T S
 
-### ***Yo, I’m Fald!***  
+### ***Hi, I’m Fald!***  
 ya ndak tau kok tanya saya
 
 </div>
