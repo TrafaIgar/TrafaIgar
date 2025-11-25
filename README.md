@@ -23,7 +23,7 @@
 
 <div align="center"  style="margin: 40px;" >
 
-## 🤔  Y N T K T S
+##   Y N T K T S
 
 ### ***Hi, I’m Fald!***  
 ya ndak tau kok tanya saya
